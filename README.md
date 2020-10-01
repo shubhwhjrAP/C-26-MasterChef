@@ -1,1 +1,1 @@
-# C-26-MasterChef
+This recipe is for an eggless chocolate sponge cake.
